@@ -4,3 +4,8 @@
 #### Un pour TUCHE TUCHE POUR UN !!!
 
 <img src="https://i.ytimg.com/vi/_kty5oWpEGk/maxresdefault.jpg" alt="drawing" width="800"/> 
+
+#### Funny story
+
+> I hate it when people see me at the supermarket and they are like: "Hey, what are you doing here ?" !
+> And I'm like : "You know .... Hunting Animals ...!"
