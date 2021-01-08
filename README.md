@@ -10,4 +10,6 @@
 > I hate it when people see me at the supermarket and they are like: "Hey, what are you doing here ?" !
 > And I'm like : "You know .... Hunting Animals ...!"
 
-> He pushes the skateboard with his foot. The skate rolls to a large yellow box located under the bed. It reads: "Plutonium - handle with care". He enters a key in a device connected to a very large amplifier.
+> He pushes the skateboard with his foot. The skate rolls to a large yellow box located under the bed. It reads: "Plutonium - handle with care". He enters a key in a device connected to a very large amplifier.  
+
+La fleur sèche au soleil jusqu'à ce que son sauveur arrive.
