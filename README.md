@@ -19,3 +19,5 @@ La fleur sèche au soleil jusqu'à ce que son sauveur arrive.
 du coup je suis parti dans un chemin et je me suis perdu mais j ai retrouvé mon chemin et la ....
 
 > ![gif](https://media.giphy.com/media/LPgFwCQg4HQBvPihcn/giphy.gif)
+
+Et donc je tombe sur ce magnifique billet et blasée de la vie comme je suis ... **je le jette**, bah oui ...encore un qui a jeté son *monopoly* par la fenêtre ... pensez à la planète bor** !
